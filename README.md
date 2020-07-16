@@ -4,7 +4,7 @@
 LogPusher, Bifyou, LojiPlus, Micro Integrated Founder.
 Re-Connect MVP, MCT and SharePoint Developer.
 
-She likes to help people, she is aggressive at times and cute at times.
+I likes to help people, he aggressive at times and cute at times.
 
 Literature lover, poetry writer, Novel writer
 
